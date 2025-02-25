@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **delvieronigel@gmail.com**
 
-- ⚡ Experience from **2016**
+- ⚡ Experience since **2016**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
