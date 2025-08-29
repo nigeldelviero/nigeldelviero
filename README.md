@@ -1,5 +1,3 @@
-# Nigel Delviero
-
 Full-stack & Blockchain/Web3 Developer  
 Building digital solutions since 2016  
 
